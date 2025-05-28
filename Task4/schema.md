@@ -1,1 +1,0 @@
-![Диаграмма](https://drive.google.com/file/d/1_V17ysZUyOSCbI0tVl5oa8CLHVWOYLeE/view?usp=sharing)
